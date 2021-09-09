@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @virkanmol191
+- 👀 I’m interested in animation
+- 🌱 I’m currently learning adobe
+- 💞️ I’m looking to collaborate on youtube animation community
+- 📫 How to reach me virkanmol191@gmail.com
